@@ -1,0 +1,1 @@
+# Foundations-of-Harmonic-Calculus-A-Mathematical-Framework-for-the-Resonant-Field-Model
